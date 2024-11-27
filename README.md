@@ -3,7 +3,7 @@
 ## What is CapCut Pro Version 9.0.0 APK Premium Unlocked?
 CapCut Pro Version 9.0.0 APK Premium Unlocked is a powerful video editing app for Android that allows users to create professional-quality videos. Developed by ByteDance, the creators of TikTok, this app is perfect for creating engaging content with ease. The premium unlocked version includes advanced tools and features, free of restrictions, making it an excellent choice for budding creators and professionals alike.
 
-## ⬇️[Downoload CapCut Pro Version 9.0.0 APK]([)](https://modhello.com/capcut/)⬇️
+## ⬇️[Downoload CapCut Pro Version 9.0.0 APK](https://modhello.com/capcut/)⬇️
 
 ## Features of CapCut Pro Version 9.0.0 APK Premium Unlocked
 This version of the app offers robust tools for crafting videos that stand out. Below are its key features:
